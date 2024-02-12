@@ -1,4 +1,5 @@
 # ***No, I'm not the official Bunnings Warehouse github account***
+![Shocking](shocked.png)
 
 ### *Who I actually am*
 My name is Oisin. I make music sometimes online. I don't have anything to really say as I'm just a regular person. I got a pretty decent vinyl record collection valued at around $1.2k median on Discogs.
